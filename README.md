@@ -44,7 +44,8 @@
     * 考研成长笔记
     * 考研资料放送
 
-
+* 考研学习网›考研服务›考研福利
+http://kyg.daisousou.com/forum.php?mod=forumdisplay&fid=71
 
 
 
